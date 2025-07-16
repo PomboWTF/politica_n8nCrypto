@@ -1,0 +1,1 @@
+# politica_n8nCrypto
